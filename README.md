@@ -1,2 +1,2 @@
 # Designs-passatempo
-Designs feitos por mim como hobbie 
+Designs feitos por mim de forma profissional e hobbie
